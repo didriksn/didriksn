@@ -7,7 +7,7 @@ Here are some ideas to get you started:
 
 - 🔭 I’m currently working on ... ingenting
 - 🌱 I’m currently learning ... ingenting
-- 👯 I’m looking to collaborate on ... ingen
+- 👯 I’m looking to collaborate on ... ingenting
 - 🤔 I’m looking for help with ... ingenting
 - 💬 Ask me about ... anything
 - 📫 How to reach me: ... here
